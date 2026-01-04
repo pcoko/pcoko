@@ -7,8 +7,8 @@
 
 - 🌱 I’m currently learning Python and how to use GitHub
 - 🤔 I’m looking for help with GitHub
-- 💬 Ask me about Alexis Rose and her resourcefulness
+- 💬 Ask me about Alexis Rose 
 - 😄 Pronouns: she/her
-- 🎉Interests: fibre arts, beadworking, photography, reading, music, sleeping, etc
-- ⚡ Fun fact about me: I don't like peanut butter or apples, but I'll eat a granny smith with some peanut butter. 
+- 🎉Interests: fibre arts, beadworking, photography, reading, music, sleeping
+- ⚡ Fun fact about me: I don't like peanut butter or apples, but I'll eat a granny smith with some peanut butter
 
